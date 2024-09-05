@@ -1,5 +1,6 @@
 
- ![205_sin_titulo_20240905114052](https://github.com/user-attachments/assets/2b1d0024-fe30-451b-8399-5e831a7a7d4b)
+![205_sin_titulo_20240905114905](https://github.com/user-attachments/assets/01714514-f872-4e37-8e60-0f2b509a9778)
+
 
  
  ❥ Martin.             19.                      he/it.                    mex
@@ -10,7 +11,8 @@
   
 HLVRAI + TMA + GRAVITY FALLS INT!!
 
-![205_sin_titulo_20240905114047](https://github.com/user-attachments/assets/10ab5a64-1040-42bd-bb2a-755d2d01b7e3)
+![205_sin_titulo_20240905114911](https://github.com/user-attachments/assets/ee69753e-cd86-485f-91ea-aa2a3b0c0e13)
+
 
 
 <!--- 
